@@ -5,7 +5,7 @@
 ### [点击下载yandex浏览器](https://browser.yandex.com/)
 
 ### 脱裤吧地址发布页
-### 【地址1】：https://tuokuba81.buzz
+### 【地址1】：https://taubockduebfa88.buzz/hhok
 
 ### 91会所地址发布页
 ### 【地址1】：https://91huisuo.buzz
@@ -14,10 +14,10 @@
 ### 【地址1】：https://nvpugg60.buzz
 
 ### 男人藏精阁地址发布页
-### 【地址1】：https://nanrencjg5.buzz
+### 【地址1】：https://nanrencjg50.buzz/cjg
 
 ### 超级福利社区地址发布页
-### 【地址1】：https://chaojifuli9.buzz
+### 【地址1】：https://chaojifuli71.buzz
 
 ### 【防迷路联系邮箱】：zuixindizhi@proton.me
 
